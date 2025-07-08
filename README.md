@@ -30,7 +30,7 @@
 
 立即收藏本页，享受无缝、高清的日本AV免费观看体验！不需要任何繁琐的注册和付费，就能享受丰富的成人娱乐资源，随时满足你的观看需求！
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtth2611/1444444 ）</span>
 
 
 
